@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+
+About Me My name is Ruan YiFen . You can call me Frank. I was born in 1970s. I am an IT developer focusing on web technology
